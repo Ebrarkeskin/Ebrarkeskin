@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ebrarkeskin
+- 👀 I’m interested in coding 
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me ; maybe my IG @sorrowfal
+- 😄 Pronouns: /
+- ⚡ Fun fact: I'm an artist
